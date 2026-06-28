@@ -1,4 +1,4 @@
-# 
+# Nativo QuickBooks predefinições para Mac OS | Novo QuickBooks predefinições para PC Windows. Com gestão de estoque e histórico de versões — otimizado para máximo desempenho em cada plataforma.
 
 
 
